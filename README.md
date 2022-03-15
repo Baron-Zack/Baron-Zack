@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Baron-Zack
+- 👋 Hi, I’m @Zack
 - 👀 I’m interested in customer service
-- 🌱 I’m currently learning online customer service
+- 🌱 I’m currently learning how to code and how to improve my customer service skills
 - 💞️ I’m looking to collaborate with project managers
 - 📫 How to reach me: zak.business111@gmail.com
 
